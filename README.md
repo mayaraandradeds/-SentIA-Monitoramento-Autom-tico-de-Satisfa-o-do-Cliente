@@ -1,0 +1,1 @@
+# -SentIA-Monitoramento-Autom-tico-de-Satisfa-o-do-Cliente
